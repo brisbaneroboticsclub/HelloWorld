@@ -6,6 +6,4 @@ https://www.linkedin.com/feed/update/urn:li:activity:6872091729764462592?comment
 
 Marty says hi
 
-Marty says hi again :)
-
-Marty was ere....
+Marty says hi again :) and again...
